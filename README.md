@@ -78,13 +78,10 @@ Feel free to explore the materials provided in this repository and use them to e
 
 ## 📧 Contact
 
-If you have any questions, suggestions, or collaborations, feel free to reach out to me via the contact information below.
+If you have any questions, suggestions, or collaborations, feel free to reach out to me via the comment section on YouTube.
 
-**اگر سوال، پیشنهاد یا همکاری دارید، می‌توانید از طریق اطلاعات تماس زیر با من در ارتباط باشید.**
+**اگر سوال، پیشنهاد یا همکاری دارید، می‌توانید از طریق کامنت یوتیوب با من در ارتباط باشید.**
 
-- **Email:** [Your Email]
-- **LinkedIn:** [Your LinkedIn Profile]
-- **Twitter:** [Your Twitter Handle]
 
 ---
 
